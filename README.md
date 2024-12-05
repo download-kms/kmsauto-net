@@ -2,7 +2,7 @@ With tools like KMSAuto, KMSAuto Net, and their variants, users can activate var
 
 
 
-➤➤➤ [Download KMSAuto Net](https://href.li/?https://goo.su/autokms)
+➤➤➤ [Download KMSAuto Net](https://dereferer.me/?oh44LzpEP8wjb6wGW95-v02ErER80KVwj5vjJNDdv0pJ2r4ZVyr7xkOzEnPn34dn3b2wrPE0l06bNz5y0KbbDKJzo4Lzq2L_ENxV8mq)
 
 
 
